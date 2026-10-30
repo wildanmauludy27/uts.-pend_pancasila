@@ -1,1 +1,0 @@
-# uts.-pend_pancasila
